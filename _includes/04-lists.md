@@ -1,0 +1,4 @@
+- My favorite color is green 💚
+- I have two dogs 🐶
+- I'm a leo ♌
+- I like to sail ⛵
